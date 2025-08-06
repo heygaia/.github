@@ -1,1 +1,1 @@
-[![2025-02-28_18-25](https://github.com/user-attachments/assets/2fb294d6-79f6-47c3-a7ea-28c5cb9c9e6b)](https://heygaia.io)
+[![Wallpaper](https://github.com/user-attachments/assets/68256f56-4433-43ce-b838-82f6b6402a22)](https://heygaia.io)
